@@ -1,0 +1,3 @@
+- 👋 OLá! meu nome é Felipe da Conceição Silva, sou apaixonado por tecnologia e amo programar 💙
+- 🧑‍💻 Atualmente faço BSI na Universidade de Uberlândia 🏙️
+- 👀 Meu sonho é trabalhar na área de tecnologia e no futuro mais distânte ser professor universitário 🧑‍🏫
